@@ -1,0 +1,1 @@
+# SQL-Malumotlar-ombori
